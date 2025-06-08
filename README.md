@@ -3,7 +3,7 @@
   <img src="https://64.media.tumblr.com/2af83e0fb5f5dbae36fee9198b073510/92a4022eeea17dce-72/s2048x3072/1f98b1bb9ac550487fd34892b15a0c0065a70de8.pnj" alt="vampstyx's custom image"/>
 </p>
 
-<h3 align="center"> ⟡ 　　﹒  　READ STRAWPAGE BEFORE INTERACT !　　◞ </h3>
+<h3 align="center"><code style="color : gold">⟡ 　　﹒  　READ STRAWPAGE BEFORE INTERACT !　　◞ </code></h3>
 
 <p align="center">
   <img src="https://64.media.tumblr.com/537ed98eef3b4b68baf5910417a96044/6a4882f7400b4ba7-97/s1280x1920/c289a1f7f0d9d9779e0d3e93d6144b931e87d265.pnj" alt="vampstyx's custom image"/>
