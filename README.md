@@ -1,12 +1,12 @@
 <!-- level 1: simple bio and stats -->
 <p align="center">
-  <img src="https://64.media.tumblr.com/541502ebca0edcc14fd380c37e6f49b3/869533ccf1115b1e-bb/s1280x1920/79db82222193e608c5f188989d836c1d2c662f37.pnj" alt="vampstyx's custom image"/>
+  <img src="https://64.media.tumblr.com/0867de9281494e19b8f5c8f65ac595df/5d58ba34a04db0ca-ed/s2048x3072/808558f36417e66aa103ac99a3e19ec44b718dd3.pnj" alt="vampstyx's custom image"/>
 </p>
 
-<h3 align="center"><code style="color : gold">⟡ 　　﹒  　READ STRAWPAGE BEFORE INTERACT !　　◞ </code></h3>
+<h3 align="center"><code color="purple">⟡ 　　﹒  　READ STRAWPAGE BEFORE INTERACT !　　◞ </code></h3>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/874b69625ed4b372a300b0ab4ba2a668/869533ccf1115b1e-b0/s1280x1920/4610ba3ca45a0d7bb9ff0fab84480251b16afc18.pnj" alt="vampstyx's custom image"/>
+  <img src="https://64.media.tumblr.com/25dab7ae6ac32f3491492f7ed4d4813e/309ce52122fffe37-5c/s500x750/60bc587cc9f6df03e5a2be9c6e11b723b1ab4b24.gifv" alt="vampstyx's custom image"/>
 </p>
 
 
