@@ -1,6 +1,6 @@
 <!-- level 1: simple bio and stats -->
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1333202020915613819/1393988120374153246/Untitled24_20250713181002.png?ex=68752c1a&is=6873da9a&hm=1c5e80c2cae30583f6f9a9800c99f294f93a38048c58b6073be1421ac52024e2&=&format=webp&quality=lossless&width=819&height=431" alt="vampstyx's custom image"/>
+  <img src="https://media.discordapp.net/attachments/1333202020915613819/1393993406350622770/Untitled28_20250713182453.png?ex=68753107&is=6873df87&hm=251288d16576e5ce2463fee02226c345c6fc47b0b60be2e53874c860cd2ae84e&=&format=webp&quality=lossless&width=924&height=431" alt="vampstyx's custom image"/>
 </p>
 
 <h3 align="center"><code color="purple">⟡ 　　﹒  　READ STRAWPAGE BEFORE INTERACT !　　◞ </code></h3>
