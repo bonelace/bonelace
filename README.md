@@ -1,26 +1,16 @@
 <!-- level 1: simple bio and stats -->
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1333202020915613819/1393993406350622770/Untitled28_20250713182453.png?ex=68aa95c7&is=68a94447&hm=146d7643752e48cf22a22aba9eac3692331a7c7411872fd822e64242b13bf75e&=&format=webp&quality=lossless&width=924&height=431" alt="bonelace's custom image"/>
+  <img src="https://i.pinimg.com/736x/fd/15/cd/fd15cd244cd81c69345b441af6f49c7d.jpg" alt="bonelace's custom image"/>
 </p>
 
 <h3 align="center"><code color="purple">⟡ 　　﹒  　READ STRAWPAGE BEFORE INTERACT !　　◞ </code></h3>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/8685f40ee842ba691e23a15a37b415aa/d416f3218ce874db-ca/s1280x1920/4c9634cb453dcfc312617e45b566a80ac449e5c6.pnj" alt="bonelace's custom image"/>
+  <img src="https://64.media.tumblr.com/6382f99ffc7e140b0e1f4ca0ad03e461/e226e779dd67f321-56/s2048x3072/79d39001a280bf102e68f794cb9b7acec3833969.pnj" alt="bonelace's custom image"/>
 </p>
 
 　<h3 align="center">﹑　 ཀ 　[ATABOOK](https://vampstyx.atabook.org/)　﹒ 　[STRAWPAGE](https://gunss.straw.page)　﹒　　𓏵</h3>
 <p align="center">
 
-  <img src="https://64.media.tumblr.com/7a597d539652bd2e22d87b038752003e/d416f3218ce874db-ef/s640x960/982b864fc0ac3c4974836a5afbdbeb69c12b2829.gifv" alt="bonelace's custom image"/>
+  <img src="https://64.media.tumblr.com/11be172db441c6e4c42f99806ab16aa0/6358e14772faff9b-87/s2048x3072/74c0a1db342e054a85ff814097dc5698ed6feb4b.pnj" alt="bonelace's custom image"/>
 </p>
-
-　<h1 align="center"><code color="purple">➴　﹒ 　WALL OF SHAME.　　◞</code></h1>
-
-<h3 align="center">Long story short this person have been color picked and copied my Nam-gyu skin and tried to make it look like it's theirs by using a bit darker colors of the original, however top of that they even had the face to hide me after they copied my skin, a stranger confronted me about that person, and even hided my Boyfriend when he confronted the person about being copycat, on the cherry on top that they not just copied my skin BUT MY FACE EXPRESSION BOTH THE BASIC ONE AND THE ONE I USE WHEN I'M SITTING ALONE. it's not hard to be creative and unique but seem like for some people it is, I pretty much notice the little detail I put in my skins, and they had face to do the same, disgusting and annoying. I will not remove that from my Readme till the person deletes the skin, or unhides me and my Boyfriend, and willing to talk it out like a normal person, untill that please everyone be caefull, they might even copied others as well, it's genually upsetting me because I worked a whole hour on my skin while finding a new style I want to use, well however, screenshots below.</h3>
-
-<p align="center">
-  <img src="https://media.discordapp.net/attachments/1332853237430222938/1393617150400532500/image.png?ex=68aa88dc&is=68a9375c&hm=0d9f13e405d8826823212c55d7512856036326e1e3984983e5add5ef5cefa014&=&format=webp&quality=lossless" alt="bonelace's custom image"/>
-</p>
-<p align="center">
-  <img src="https://media.discordapp.net/attachments/1332853237430222938/1393617208940429433/image.png?ex=68aa88ea&is=68a9376a&hm=fd2e9e6c84440622fcdce938119485b457ef9b509f45886c5fab5907a0eb1580&=&format=webp&quality=lossless" alt="bonelace's custom image"/> 
