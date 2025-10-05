@@ -22,7 +22,7 @@
   
   Other thing to be mentionet I am a DID system, so there's moment when I am not the one in front, you may ask who's fronting currently but if you see someone having "introj" in their name, that pretty much not me but my headmate, please respect their interaction status if they have it in name such as DNI or IWC.
 
-  I am a sensitive person I may state that out, so I need tonetags mostly at jokes as I can't read off from tones, I tried to train that but I still have issues to tell off from tone, sometime I am passive agressive, please beware of that, it's nothing personal but is how I react to negative things that happened around me, I will apologize a lot after wards, I know that also can be annoying, but that's just my personality and life issues.
+  I am a sensitive person I may state that out, so I need tonetags mostly at jokes as I can't read off from tones, I tried to train that but I still have issues to tell off from tone, sometime I am passive agressive, please beware of that, it's nothing personal but is how I react to negative things that happened around me, I will apologize a lot after wards, I know that also can be annoying, but that's just my personality and life issues, beside the fact I am ANTISOCIAL. which means i don't interact with people.
 
   I don't really have dni list, it's basically the usual dni citerias, such as homophobic, racist and etc, but I would also prefer if minors don't interact with me, I am not really comfortable with kids or teens, -17 is a big no no and dni to me, so don't even bother to interact with me, I won't be open for that, same goes for 25+ people, please forget that I even exist and breath.
 
