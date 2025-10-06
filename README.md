@@ -28,7 +28,7 @@
 
   I am passionate about my partner so I mostly will try to stuck with him most of the time, but feel free to whisper if you want to interact with me, I don't promise I will replyasap as I might be off-tab or distracted, but if I can I will reply! I am usually dry talker at first, once I warm up I might be a yapper in the end, if you dislikes yappers, just tell me sybau and I will shut up right away, and probably will be awkward but yeah for the comfort just tell me shut up.
 
-  okay well that's all actually, if you want to like complain about my existance like many people did on my strawpage, use my atabook for that, either will be replied or ignore, bc I am THAT nice :3 
+  okay well that's all actually to know, if you want to like complain about my existance like many people did on my strawpage, use my atabook for that to do so, altho I will ignore it because I am that nice + literally morally tired of people trying to play doctor on me, if you want to play a doctor then respectfully fuck off, I am NOT interested in your bullshit, nor anyone else are, hope y'all have a nice day / evening ^_^
   
   <img src="https://64.media.tumblr.com/3013fad374e05ebcfbedf862c96da803/cc10d330596ecddf-59/s2048x3072/1059ad189548d22433cd1e93943f756db58f9fcd.pnj" alt="bonelace's custom image"/>
 </p>
