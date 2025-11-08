@@ -1,19 +1,25 @@
 <!-- level 1: simple bio and stats -->
 <p align="center">
-  <img src="https://64.media.tumblr.com/99f7508dbf2e15fdeae06d453b95b7c1/cc10d330596ecddf-a8/s2048x3072/4654f484acdc37ec0c890ecae8b6115062a9f3e2.pnj" alt="bonelace's custom image"/>
+  <img src="https://64.media.tumblr.com/537c3ad87aec3d0f87500d7055d9e6af/6a013847a16bf59c-e7/s2048x3072/de95b2dd139dbad37b19a48cb1b8e5548b0e1de2.pnj" alt="bonelace's custom image"/>
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/63f591c5fc9954f428f64cae0e8a00f9/cc10d330596ecddf-14/s1280x1920/2d63fd79e440af134e06b12b0a44c6c4ec583023.pnj" alt="bonelace's custom image"/>
+  <img src="https://media.discordapp.net/attachments/1408787343682310165/1436763288842277105/tumblr_44096a31f2ceefc1c84a4f6b29734e0b_a3131737_1280.webp?ex=6910c995&is=690f7815&hm=11f0d29f3b16cb12bc05ba1f1bde7e6ffe25a61404e5cac1f698a055ede3fa06&=&animated=true&width=822&height=462" alt="bonelace's custom image"/>
 </p>
 
-<h3 align="center"><code color=cyan>⟡ 　　﹒  　READ EVERYTHING BC YES !　　◞ </code></h3>
+<h3 align="center"><code color=cyan>⟡ 　　﹒  　READ EVERYTHING BC YES !　　◞ </code></h3> 
+
+<p align="center"><<img src="https://64.media.tumblr.com/d39465bb40328f38eb4404421ee8b0eb/6a013847a16bf59c-68/s1280x1920/deeff40d587a637cb3fd37a09a236d9c74b3fd81.gifv"  alt="bonelace's custom image"
 
 　<h3 align="center">﹑　 ཀ 　[ATABOOK](https://vampstyx.atabook.org/)　﹒　[RENTRY](https://rentry.co/bonelace)　﹒　[STRAWPAGE](https://b0nelace.straw.page)　𓏵</h3>
 <p align="center">
 
   <img src="https://64.media.tumblr.com/addf2d6c2760b8df6c032bb3cb37a478/ce814cd7e8d737f2-74/s640x960/247e8daac6c81e798dfb64101f7af1f59ddd1c8c.webp" alt="bonelace's custom image"/>
 </p>
+
+  <img src="https://64.media.tumblr.com/36554170a6bea8b4acd49bde6293d512/7d965817f5c500c8-13/s2048x3072/a677b6a3cd927370df16985b17a45099adf647ab.pnj" alt="bonelace's custom image"/>
+</p>
+
 <h3 align="center"><code color="purple">⟡ 　　﹒  　ABOUT ME SHORTLY !　　◞ </code></h3>
 <p align="center">
 
@@ -30,5 +36,5 @@
 
   okay well that's all actually to know, if you want to like complain about my existance like many people did on my strawpage, use my atabook for that to do so, altho I will ignore it because I am that nice + literally morally tired of people trying to play doctor on me, if you want to play a doctor then respectfully fuck off, I am NOT interested in your bullshit, nor anyone else are, hope y'all have a nice day / evening ^_^
   
-  <img src="https://64.media.tumblr.com/3013fad374e05ebcfbedf862c96da803/cc10d330596ecddf-59/s2048x3072/1059ad189548d22433cd1e93943f756db58f9fcd.pnj" alt="bonelace's custom image"/>
+  <img src="https://64.media.tumblr.com/fd1ac34c1e967aa24f0db94d2eb67c65/7d965817f5c500c8-f9/s2048x3072/dac45ae757ea45e7d0f6baafc30ea07bb4ba4224.pnj" alt="bonelace's custom image"/>
 </p>
