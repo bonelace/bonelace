@@ -1,6 +1,5 @@
-<!-- level 1: simple bio and stats -->
 <p align="center">
-  <img src="https://64.media.tumblr.com/537c3ad87aec3d0f87500d7055d9e6af/6a013847a16bf59c-e7/s2048x3072/de95b2dd139dbad37b19a48cb1b8e5548b0e1de2.pnj" alt="bonelace's custom image"/>
+  <img src="https://media.discordapp.net/attachments/1408787343682310165/1437108978676142174/IMG_20251109_165603.png?ex=69120b88&is=6910ba08&hm=e05f4a808ad510a758873071b7682e2769084f52ac128a6799cb74594e69f2cc&=&format=webp&quality=lossless&width=1214&height=267" alt="bonelace's custom image"/>
 </p>
 
 <p align="center">
@@ -21,6 +20,10 @@
 
 <p align="center">
 <img src="https://64.media.tumblr.com/addf2d6c2760b8df6c032bb3cb37a478/ce814cd7e8d737f2-74/s640x960/247e8daac6c81e798dfb64101f7af1f59ddd1c8c.webp" alt="bonelace's custom image"/>
+</p>
+
+<p align="center">
+  <img src="https://media.discordapp.net/attachments/1408787343682310165/1437108979238047814/Untitled78_20251109165724.png?ex=69120b88&is=6910ba08&hm=33d1b8e5453f60e8e07ce703da6002d20fefd93e027a213e706b4044eab1f87d&=&format=webp&quality=lossless&width=1214&height=267" alt="bonelace's custom image"/>
 </p>
 
   <img src="https://64.media.tumblr.com/36554170a6bea8b4acd49bde6293d512/7d965817f5c500c8-13/s2048x3072/a677b6a3cd927370df16985b17a45099adf647ab.pnj" alt="bonelace's custom image"/>
