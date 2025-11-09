@@ -16,7 +16,7 @@
 
 <p align="center"><img src="https://64.media.tumblr.com/d39465bb40328f38eb4404421ee8b0eb/6a013847a16bf59c-68/s1280x1920/deeff40d587a637cb3fd37a09a236d9c74b3fd81.gifv"  alt="bonelace's custom image"
 
-　<h3 align="center">﹑　 ཀ 　[ATABOOK](https://vampstyx.atabook.org/)　﹒　[RENTRY](https://rentry.co/bonelace)　﹒　[STRAWPAGE](https://b0nelace.straw.page)　𓏵</h3>
+　<h3 align="center">﹑　 ཀ 　[ATABOOK](https://bonelace.atabook.org/)　﹒　[RENTRY](https://rentry.co/bonelace)　﹒　[STRAWPAGE](https://b0nelace.straw.page)　𓏵</h3>
 
 <p align="center">
 <img src="https://64.media.tumblr.com/addf2d6c2760b8df6c032bb3cb37a478/ce814cd7e8d737f2-74/s640x960/247e8daac6c81e798dfb64101f7af1f59ddd1c8c.webp" alt="bonelace's custom image"/>
