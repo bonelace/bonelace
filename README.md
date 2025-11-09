@@ -7,6 +7,12 @@
   <img src="https://media.discordapp.net/attachments/1408787343682310165/1436763288842277105/tumblr_44096a31f2ceefc1c84a4f6b29734e0b_a3131737_1280.webp?ex=6910c995&is=690f7815&hm=11f0d29f3b16cb12bc05ba1f1bde7e6ffe25a61404e5cac1f698a055ede3fa06&=&animated=true&width=822&height=462" alt="bonelace's custom image"/>
 </p>
 
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=313mn7y63j5njykgucmpsq3zwazm&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=313mn7y63j5njykgucmpsq3zwazm&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=b677b1">
+  </a>
+</p>
+
 <h3 align="center"><code color=cyan>⟡ 　　﹒  　READ EVERYTHING BC YES !　　◞ </code></h3> 
 
 <p align="center"><img src="https://64.media.tumblr.com/d39465bb40328f38eb4404421ee8b0eb/6a013847a16bf59c-68/s1280x1920/deeff40d587a637cb3fd37a09a236d9c74b3fd81.gifv"  alt="bonelace's custom image"
