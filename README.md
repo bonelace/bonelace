@@ -1,9 +1,9 @@
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1408787343682310165/1437108978676142174/IMG_20251109_165603.png?ex=69120b88&is=6910ba08&hm=e05f4a808ad510a758873071b7682e2769084f52ac128a6799cb74594e69f2cc&=&format=webp&quality=lossless&width=1214&height=267" alt="bonelace's custom image"/>
+  <img src="https://media.discordapp.net/attachments/1408787343682310165/1437108978676142174/IMG_20251109_165603.png?ex=69175188&is=69160008&hm=e7e820e32bd168fa58fe7116d72bcbd458681a67088bbcbe4f0e7f325498b4ab&=&format=webp&quality=lossless&width=1214&height=267" alt="bonelace's custom image"/>
 </p>
 
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1408787343682310165/1436763288842277105/tumblr_44096a31f2ceefc1c84a4f6b29734e0b_a3131737_1280.webp?ex=6912c3d5&is=69117255&hm=5ea84a93c62e877463ec9068f9c8044777a71087d903a04c7380fb8d25f90c7c&=&animated=true&width=822&height=462" alt="bonelace's custom image"/>
+  <img src="https://media.discordapp.net/attachments/1408787343682310165/1436763288842277105/tumblr_44096a31f2ceefc1c84a4f6b29734e0b_a3131737_1280.webp?ex=6916b855&is=691566d5&hm=7579a68c89c276d76912815e5656071a89f5aaaa117c3539560166e732307299&=&animated=true&width=822&height=462" alt="bonelace's custom image"/>
 </p>
 
 <p align="center">
@@ -23,7 +23,7 @@
 </p>
 
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1408787343682310165/1437108979238047814/Untitled78_20251109165724.png?ex=69120b88&is=6910ba08&hm=33d1b8e5453f60e8e07ce703da6002d20fefd93e027a213e706b4044eab1f87d&=&format=webp&quality=lossless&width=1214&height=267" alt="bonelace's custom image"/>
+  <img src="https://media.discordapp.net/attachments/1408787343682310165/1437108979238047814/Untitled78_20251109165724.png?ex=69175188&is=69160008&hm=19fcd1c66979535d5f68ccd5a8303698e11dbe8d12371255a54cef746c7d9fc5&=&format=webp&quality=lossless&width=1214&height=267" alt="bonelace's custom image"/>
 </p>
 
   <img src="https://64.media.tumblr.com/36554170a6bea8b4acd49bde6293d512/7d965817f5c500c8-13/s2048x3072/a677b6a3cd927370df16985b17a45099adf647ab.pnj" alt="bonelace's custom image"/>
