@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1408787343682310165/1436763288842277105/tumblr_44096a31f2ceefc1c84a4f6b29734e0b_a3131737_1280.webp?ex=6916b855&is=691566d5&hm=7579a68c89c276d76912815e5656071a89f5aaaa117c3539560166e732307299&=&animated=true&width=822&height=462" alt="bonelace's custom image"/>
+  <img src="https://media.discordapp.net/attachments/1408787343682310165/1436763288842277105/tumblr_44096a31f2ceefc1c84a4f6b29734e0b_a3131737_1280.webp?ex=6918b295&is=69176115&hm=2c8bd8623df86dd17abfb824ff7d356bc073ae49f760be6e25a5ec009323272f&=&animated=true&width=822&height=462" alt="bonelace's custom image"/>
 </p>
 
 <p align="center">
