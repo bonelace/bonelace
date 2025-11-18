@@ -1,9 +1,9 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/9b57a24d5bacc1dee28e7dcbfcabb963/57cd3f6a4b5c3deb-c9/s2048x3072/864e9696a783bc1c9a9eb8b544bad663de0e93e0.pnj" alt="bonelace's custom image"/>
+  <img src="https://64.media.tumblr.com/fb18c0a234c9a25259f078d4448fcdaf/8e8acb918eab86af-4a/s2048x3072/49a53018f934990fffe23bba927f7bfc722df0a8.pnj" alt="bonelace's custom image"/>
 </p>
 
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1408787343682310165/1436763288842277105/tumblr_44096a31f2ceefc1c84a4f6b29734e0b_a3131737_1280.webp?ex=691ca715&is=691b5595&hm=632d1066a798b0bf0b7de30aa89b9b264a45b514ac723dd6a42eeefd60b32a7b&=&animated=true&width=822&height=462" alt="bonelace's custom image"/>
+  <img src="https://64.media.tumblr.com/68a929e861f5e6be6b83d11554b3bbad/6499e6d8f88ee765-de/s640x960/4fe3b71c547f85e865ee25e6292edda4cb581508.pnj" alt="bonelace's custom image"/>
 </p>
 
 <p align="center">
@@ -12,9 +12,9 @@
   </a>
 </p>
 
-<h3 align="center">$${\color{purple} \space ⟡ 　　 \space ﹒ \space   　READ \space EVERYTHING \space BC \space YES \space ! \space 　　◞{}}$$</code></h3> 
+<h3 align="center">$${\color{pink} \space ⟡ 　　 \space ﹒ \space   　READ \space EVERYTHING \space BC \space YES \space ! \space 　　◞{}}$$</code></h3> 
 
-<p align="center"><img src="https://64.media.tumblr.com/cb028d12d93fdd4fa9315329bab8f632/3335549b2a9c905a-2f/s2048x3072/f4cd1defe3db7c64d1e34d893279aa7421107fe3.pnj"  alt="bonelace's custom image"
+<p align="center"><img src="https://64.media.tumblr.com/bee4701d5f546d8e58ce462dd4ba44e1/f85c482989dd06da-bd/s640x960/51ab11022471b3ff6b585afe1592f05e407f57a8.gifv"  alt="bonelace's custom image"
 
 　<h3 align="center">﹑　 ཀ 　[ATABOOK](https://bonelace.atabook.org/)　﹒　[RENTRY](https://rentry.co/bonelace)　﹒　[STRAWPAGE](https://b0nelace.straw.page)　𓏵</h3>
 
@@ -23,10 +23,11 @@
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/81b29785bbc67647a2d93af1a96c498f/57cd3f6a4b5c3deb-e4/s2048x3072/e1a22e5d46881c283f769f723fe57648f121b0dd.pnj" alt="bonelace's custom image"/>
+  <img src="https://64.media.tumblr.com/f08e5478d354ef4aeae010e10efbcf5b/8e8acb918eab86af-2a/s2048x3072/9999bc6705af827763f99dbe8b03c411905733cd.pnj" alt="bonelace's custom image"/>
 </p>
 
-  <img src="https://64.media.tumblr.com/36554170a6bea8b4acd49bde6293d512/7d965817f5c500c8-13/s2048x3072/a677b6a3cd927370df16985b17a45099adf647ab.pnj" alt="bonelace's custom image"/>
+<p align="center">
+  <img src="https://64.media.tumblr.com/42e09047d19205722adb2cfc1ed795bc/dc6f0badd4745795-8c/s1280x1920/b38c447b9c9acbb23f788b9c745d6aa532cd8789.pnj" alt="bonelace's custom image"/>
 </p>
 
 <h3 align="center"><code color="purple">⟡ 　　﹒  　ABOUT ME SHORTLY !　　◞ </code></h3>
@@ -44,6 +45,7 @@
   I am passionate about my partner so I mostly will try to stuck with him most of the time, but feel free to whisper if you want to interact with me, I don't promise I will replyasap as I might be off-tab or distracted, but if I can I will reply! I am usually dry talker at first, once I warm up I might be a yapper in the end, if you dislikes yappers, just tell me sybau and I will shut up right away, and probably will be awkward but yeah for the comfort just tell me shut up.
 
   okay well that's all actually to know, if you want to like complain about my existance like many people did on my strawpage, use my atabook for that to do so, altho I will ignore it because I am that nice + literally morally tired of people trying to play doctor on me, if you want to play a doctor then respectfully fuck off, I am NOT interested in your bullshit, nor anyone else are, hope y'all have a nice day / evening ^_^
-  
-  <img src="https://64.media.tumblr.com/fd1ac34c1e967aa24f0db94d2eb67c65/7d965817f5c500c8-f9/s2048x3072/dac45ae757ea45e7d0f6baafc30ea07bb4ba4224.pnj" alt="bonelace's custom image"/>
+
+  <p align="center">
+  <img src="https://64.media.tumblr.com/ce1019146c6820db99af4e514ed9ee04/dc6f0badd4745795-24/s1280x1920/27234189bed6395fd554254cbe4b6a8f271280c0.pnj" alt="bonelace's custom image"/>
 </p>
