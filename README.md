@@ -1,9 +1,9 @@
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1408787343682310165/1437108978676142174/IMG_20251109_165603.png?ex=69175188&is=69160008&hm=e7e820e32bd168fa58fe7116d72bcbd458681a67088bbcbe4f0e7f325498b4ab&=&format=webp&quality=lossless&width=1214&height=267" alt="bonelace's custom image"/>
+  <img src="https://64.media.tumblr.com/9b57a24d5bacc1dee28e7dcbfcabb963/57cd3f6a4b5c3deb-c9/s2048x3072/864e9696a783bc1c9a9eb8b544bad663de0e93e0.pnj" alt="bonelace's custom image"/>
 </p>
 
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1408787343682310165/1436763288842277105/tumblr_44096a31f2ceefc1c84a4f6b29734e0b_a3131737_1280.webp?ex=691aacd5&is=69195b55&hm=641e22f70630f409cbc8deefd43b7d4b99b1ee2d11f3838c82689855eeb1a6fb&=&animated=true&width=822&height=462" alt="bonelace's custom image"/>
+  <img src="https://media.discordapp.net/attachments/1408787343682310165/1436763288842277105/tumblr_44096a31f2ceefc1c84a4f6b29734e0b_a3131737_1280.webp?ex=691ca715&is=691b5595&hm=632d1066a798b0bf0b7de30aa89b9b264a45b514ac723dd6a42eeefd60b32a7b&=&animated=true&width=822&height=462" alt="bonelace's custom image"/>
 </p>
 
 <p align="center">
@@ -14,7 +14,7 @@
 
 <h3 align="center">$${\color{purple} \space ⟡ 　　 \space ﹒ \space   　READ \space EVERYTHING \space BC \space YES \space ! \space 　　◞{}}$$</code></h3> 
 
-<p align="center"><img src="https://64.media.tumblr.com/d39465bb40328f38eb4404421ee8b0eb/6a013847a16bf59c-68/s1280x1920/deeff40d587a637cb3fd37a09a236d9c74b3fd81.gifv"  alt="bonelace's custom image"
+<p align="center"><img src="https://64.media.tumblr.com/cb028d12d93fdd4fa9315329bab8f632/3335549b2a9c905a-2f/s2048x3072/f4cd1defe3db7c64d1e34d893279aa7421107fe3.pnj"  alt="bonelace's custom image"
 
 　<h3 align="center">﹑　 ཀ 　[ATABOOK](https://bonelace.atabook.org/)　﹒　[RENTRY](https://rentry.co/bonelace)　﹒　[STRAWPAGE](https://b0nelace.straw.page)　𓏵</h3>
 
@@ -23,7 +23,7 @@
 </p>
 
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1408787343682310165/1437108979238047814/Untitled78_20251109165724.png?ex=691a9d48&is=69194bc8&hm=f61be35e32eb1bc0a03afc030dba264eb8b835a21f9286e881f04447bc60c573&=&format=webp&quality=lossless&width=1214&height=267" alt="bonelace's custom image"/>
+  <img src="https://64.media.tumblr.com/81b29785bbc67647a2d93af1a96c498f/57cd3f6a4b5c3deb-e4/s2048x3072/e1a22e5d46881c283f769f723fe57648f121b0dd.pnj" alt="bonelace's custom image"/>
 </p>
 
   <img src="https://64.media.tumblr.com/36554170a6bea8b4acd49bde6293d512/7d965817f5c500c8-13/s2048x3072/a677b6a3cd927370df16985b17a45099adf647ab.pnj" alt="bonelace's custom image"/>
