@@ -12,7 +12,7 @@
   </a>
 </p>
 
-<h3 align="center"><code color=cyan>⟡ 　　﹒  　READ EVERYTHING BC YES !　　◞ </code></h3> 
+<h3 align="center">$${\color{purple} \space ⟡ 　　 \space ﹒ \space   　READ \space EVERYTHING \space BC \space YES \space ! \space 　　◞{}}$$</code></h3> 
 
 <p align="center"><img src="https://64.media.tumblr.com/d39465bb40328f38eb4404421ee8b0eb/6a013847a16bf59c-68/s1280x1920/deeff40d587a637cb3fd37a09a236d9c74b3fd81.gifv"  alt="bonelace's custom image"
 
