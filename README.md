@@ -22,7 +22,7 @@
 <p align="center">
 
   Hi hello, my name is Felix or Kevin, I also go by the name Shuichi so feel free to use any of those said names ^_^
-  I'm an adult, currently having my 21th year on this planet, other than that  I go by **He** / **They** / It, please use these on me, but also feel free to ask for my pronouns, also I am happily taken by my beloved Zane, we're been together so long, so please do not interat with me if you only want a friend to flirt with, I am NOT comfortable with that.
+  I'm an adult, currently having my 21st year on this planet, other than that  I go by **He** / **They** / It, please use these on me, but also feel free to ask for my pronouns, also I am happily taken by my beloved Zane, we're been together so long, so please do not interat with me if you only want a friend to flirt with, I am NOT comfortable with that.
   
   Other thing to be mentionet I am a DID system, so there's moment when I am not the one in front, you may ask who's fronting currently but if you see someone having "introj" in their name, that pretty much not me but my headmate, please respect their interaction status if they have it in name such as DNI or IWC.
 
