@@ -1,9 +1,9 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/29183dd3a096078f4b9eff855f03ee99/aa3c3ff574cb959c-74/s2048x3072/82ba0aa230171bd664c1b42110bc9fce24606765.pnj" alt="bonelace's custom image"/>
+  <img src="https://64.media.tumblr.com/9e6f2904a9ee22eae2fec9885824ef5c/71785d3e928cf98e-e1/s1280x1920/a4e726b316a5b8aac530349bffc278cec701bd78.pnj" alt="bonelace's custom image"/>
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/4c958398d989200164f683dcaba24848/434971b4339f2ef4-15/s1280x1920/7161f8554ad7132227571ce0817d9b807454a7fd.pnj" alt="bonelace's custom image"/>
+  <img src="https://64.media.tumblr.com/4da0b75f5b699b537c006b1af9361c03/71785d3e928cf98e-27/s1280x1920/63f7de32880a6874b34a6754eb7b586a64f56730.gifv" alt="bonelace's custom image"/>
 </p>
 
 <p align="center">
@@ -12,22 +12,20 @@
   </a>
 </p>
 
-<h3 align="center">$${\color{purple} \space ⟡ 　　 \space ﹒ \space   　READ \space EVERYTHING \space BC \space YES \space ! \space 　　◞{}}$$</code></h3> 
+<h3 align="center">$${\color{yellow} \space ⟡ 　　 \space ﹒ \space   　READ \space EVERYTHING \space BC \space YES \space ! \space 　　◞{}}$$</code></h3> 
 
-<p align="center"><img src="https://64.media.tumblr.com/bdd116f240626f509821f7a69e850721/6840813172c138c3-de/s1280x1920/3499cd37ac13278e4a4967a714b88a6dbdc753ec.pnj"  alt="bonelace's custom image"
+<p align="center">
+<img src="https://64.media.tumblr.com/52e9c871dd34e0be2336ad14be0abc91/76f6621c96c1ea9f-42/s2048x3072/9dbb640b2f3e62726ae56990f691290ad49bb493.pnj" alt="bonelace's custom image"/>
+</p>
 
 　<h3 align="center">﹑　 ཀ 　[ATABOOK](https://bonelace.atabook.org/)　﹒　[RENTRY](https://rentry.co/bonelace)　﹒　[STRAWPAGE](https://b0nelace.straw.page)　𓏵</h3>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/10689eda3010ca7dc116061e3c3931a3/9890b450b70b5d13-1a/s2048x3072/eb54e757abad0fe1dd934b39132b56eaba0f08c2.gifv" alt="bonelace's custom image"/>
+  <img src="https://64.media.tumblr.com/2ec6256483e234618480e2d7b10536db/71785d3e928cf98e-f1/s1280x1920/07d746f0219664ed5f6a8b20f6247b47f2529023.pnj" alt="bonelace's custom image"/>
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/55ca0f1fc1b62f64495021aede9ff0b1/aa3c3ff574cb959c-f7/s2048x3072/c637154bd84655033df176a5b7c8c869aa656d8e.pnj" alt="bonelace's custom image"/>
-</p>
-
-<p align="center">
-  <img src="https://64.media.tumblr.com/219fba1ef2a279e890a91e30be7698d8/d416f3218ce874db-c6/s1280x1920/ea12f2b43f34c98dee725284e96d6fbc5e2743d8.pnj" alt="bonelace's custom image"/>
+  <img src="https://64.media.tumblr.com/d4f03f947b8dfb6a28fe88a2b7ad7b20/71785d3e928cf98e-68/s1280x1920/fe0b5e0fe5e848595d4388e4255fb516ca37c2e3.pnj" alt="bonelace's custom image"/>
 </p>
 
 <h3 align="center"><code color="purple">⟡ 　　﹒  　ABOUT ME SHORTLY !　　◞ </code></h3>
@@ -47,5 +45,5 @@ I don't really have dni list, it's basically the usual dni citerias, such as hom
   okay well that's all actually to know, if you want to like complain about my existance like many people did on my strawpage, use my atabook for that to do so, altho I will ignore it because I am that nice + literally morally tired of people trying to play doctor on me, if you want to play a doctor then respectfully fuck off, I am NOT interested in your bullshit, nor anyone else are, hope y'all have a nice day / evening ^_^
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/397e6a7b548b93e82792c99ffb20743d/ac29f80f1126872f-2a/s1280x1920/62a71927e0480aa683c86d18cf383c41d3d81193.gifv" alt="bonelace's custom image"/>
+  <img src="https://64.media.tumblr.com/f4fb758a97e5a3e840cf291ded643f55/71785d3e928cf98e-b9/s1280x1920/d9ae368125002dda54efc9d36fac22e3e0f18c58.pnj" alt="bonelace's custom image"/>
 </p>
