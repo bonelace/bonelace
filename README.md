@@ -12,7 +12,12 @@
   </a>
 </p>
 
-<h3 align="center">$${\color{yellow} \space ⟡ 　　 \space ﹒ \space   　READ \space EVERYTHING \space BC \space YES \space ! \space 　　◞{}}$$</code></h3> 
+<h3 align="center">${\textsf{\color{#f7c281} ⟡ 　　 }}$
+${\textsf{\color{#f7b481} ﹒ }}$
+${\textsf{\color{#f7ac81}READ}}$
+${\textsf{\color{#f7a681}EVERYTHING}}$
+${\textsf{\color{#f79c81} ! }}$
+${\textsf{\color{#f78c81} 　　◞}}$</h3> 
 
 <p align="center">
 <img src="https://64.media.tumblr.com/52e9c871dd34e0be2336ad14be0abc91/76f6621c96c1ea9f-42/s2048x3072/9dbb640b2f3e62726ae56990f691290ad49bb493.pnj" alt="bonelace's custom image"/>
