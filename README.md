@@ -23,14 +23,16 @@ ${\textsf{\color{#8d1191}He}}$
 ${\textsf{\color{#801191}/}}$
 ${\textsf{\color{#6f1191}They}}$
 ${\textsf{\color{#541191}/}}$
-${\textsf{\color{#401191}It mostly}}$</h4>
+  ${\textsf{\color{#541191}It}}$
+${\textsf{\color{#401191}mostly}}$</h4>
 <h4 align="center">${\textsf{\color{#91116b}I'm}}$
 ${\textsf{\color{#91117a}also}}$
 ${\textsf{\color{#91118b}happily}}$
 ${\textsf{\color{#8d1191}Taken}}$
 ${\textsf{\color{#801191}by}}$
 ${\textsf{\color{#6f1191}my}}$
-${\textsf{\color{#541191}love Zane}}$</h4>
+  ${\textsf{\color{#6f1191}love}}$
+${\textsf{\color{#541191}Zane}}$</h4>
 <h4 align="center">${\textsf{\color{#91116b}dni}}$
 ${\textsf{\color{#91117a}and}}$
 ${\textsf{\color{#91118b}byi}}$
