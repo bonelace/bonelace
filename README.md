@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1408787343682310165/1463926338652995731/IMG_20260122_170024.png?ex=69739b25&is=697249a5&hm=ef1a6611ea0b6df4611ff6ee20e011fa6290e2b415d8c8962428dcaa31e4c679&=&format=webp&quality=lossless" alt="bonelace's custom image"/>
+  <img src="https://media.discordapp.net/attachments/1408787343682310165/1463933381380145370/IMG_20260122_172825.png?ex=6973a1b4&is=69725034&hm=65ecacc1e1c1901b7a9c325ba1d6d9a0bdb33760e86361fc5abc29b0bd7bc675&=&format=webp&quality=lossless" alt="bonelace's custom image"/>
 </p>
 
 <h4 align="center">${\textsf{\color{#91116b}Call}}$
