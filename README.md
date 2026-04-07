@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1408787343682310165/1463933381380145370/IMG_20260122_172825.png?ex=697644b4&is=6974f334&hm=b110188d5684508c7347708fe5ef932af3a906082b8726e8db2e568d2ce6de81&=&format=webp&quality=lossless" alt="bonelace's custom image"/>
+  <img src="https://media.discordapp.net/attachments/1408787343682310165/1463933381380145370/IMG_20260122_172825.png?ex=69d5d974&is=69d487f4&hm=ffb429047d462d95601c50c8babec57997bc703629f8dd89e4aa2eb1e8acad16&=&format=webp&quality=lossless" alt="bonelace's custom image"/>
 </p>
 
 <h4 align="center">${\textsf{\color{#91116b}Call}}$
@@ -41,7 +41,7 @@ ${\textsf{\color{#801191}in}}$
 ${\textsf{\color{#6f1191}my}}$
 ${\textsf{\color{#541191}strawpage}}$</h4>
 
-　<h4 align="center">﹑　 ཀ 　[ATABOOK](https://bonelace.atabook.org/)　﹒　[RENTRY](https://rentry.co/bonelace)　﹒　[STRAWPAGE](https://b0nelace.straw.page)　𓏵</h4>
+　<h4 align="center">﹑　 ཀ 　[ATABOOK](https://bonelace.atabook.org/)　﹒　strawpage on remake maybe　﹒　[STRAWPAGE](https://b0nelace.straw.page)　𓏵</h4>
  
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
