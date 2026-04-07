@@ -33,13 +33,6 @@ ${\textsf{\color{#801191}by}}$
 ${\textsf{\color{#6f1191}my}}$
   ${\textsf{\color{#6f1191}love}}$
 ${\textsf{\color{#541191}Zane}}$</h4>
-<h4 align="center">${\textsf{\color{#91116b}dni}}$
-${\textsf{\color{#91117a}and}}$
-${\textsf{\color{#91118b}byi}}$
-${\textsf{\color{#8d1191}are}}$
-${\textsf{\color{#801191}in}}$
-${\textsf{\color{#6f1191}my}}$
-${\textsf{\color{#541191}strawpage}}$</h4>
 
 　<h4 align="center">﹑　 ཀ 　[ATABOOK](https://bonelace.atabook.org/)　﹒　strawpage on remake maybe　﹒　[STRAWPAGE](https://b0nelace.straw.page)　𓏵</h4>
  
