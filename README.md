@@ -34,7 +34,7 @@ ${\textsf{\color{#6f1191}my}}$
   ${\textsf{\color{#6f1191}love}}$
 ${\textsf{\color{#541191}Zane}}$</h4>
 
-　<h4 align="center">﹑　 ཀ 　[ATABOOK](https://bonelace.atabook.org/)　﹒　[RENTRY](https://rentry.co/bonelace)　﹒　[STRAWPAGE](https://nod-krai.straw.page)　𓏵</h4>
+　<h4 align="center">﹑　 ཀ 　[ATABOOK](https://bonelace.atabook.org/)　﹒　[RENTRY](https://rentry.co/ducttapes)　﹒　[STRAWPAGE](https://nod-krai.straw.page)　𓏵</h4>
  
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
