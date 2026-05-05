@@ -9,6 +9,9 @@ ${\textsf{\color{#b07807}this}}$
 ${\textsf{\color{#458c07}shit}}$
 ${\textsf{\color{#288c07}readme}}$
 ${\textsf{\color{#106b06}soon}}$</h2>
+
+<h3 align="center">BTW IF YOU WANT TO TAKE INSPO OF MY SKINS LITERALLY JUST ASK AND CREDIT ME LOL</h3>
+<h3 align="center">YOU KNOW WHO ARE YOU.</h3>
  
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
