@@ -36,3 +36,6 @@ ${\textsf{\color{#10002f}me. „}}$</h3>
   </a>
 </p>
 
+<p align="center">
+  <img src="https://media.discordapp.net/attachments/1408787343682310165/1531670132365987931/IMG_20260728_162941.png?ex=6a6a0e78&is=6a68bcf8&hm=6cdfc4bafb76c809928ac9603c98d82a37b601f5337a14a8ecdbd197777a1bcc&=&format=webp&quality=lossless&width=550&height=261" alt="bonelace's custom image"/>
+</p>
