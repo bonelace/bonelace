@@ -1,19 +1,38 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/97bbb3c33708f29ae4904f1ba495b973/85b4d005f7e5669e-00/s1280x1920/b44b0f0981802919821c94827323858d290a95c2.pnj" alt="bonelace's custom image"/>
+  <img src="https://media.discordapp.net/attachments/1408787343682310165/1531661470524506345/Untitled334_20260728150617.png?ex=6a6a0667&is=6a68b4e7&hm=c293feb6d56a47be91bf8301af1872b3cb621d97d89163b53303e7606477585f&=&format=webp&quality=lossless&width=780&height=535" alt="bonelace's custom image"/>
 </p>
 
-<h2 align="center">${\textsf{\color{#ba3a07}I}}$
-${\textsf{\color{#ba4907}will}}$
-${\textsf{\color{#ba5807}re-make}}$
-${\textsf{\color{#b07807}this}}$
-${\textsf{\color{#458c07}shit}}$
-${\textsf{\color{#288c07}readme}}$
-${\textsf{\color{#106b06}soon}}$</h2>
+<h3 align="center">${\textsf{\color{#ffe8cc}“ It}}$
+${\textsf{\color{#f0e8cc}doesn't}}$
+${\textsf{\color{#e1dccc}matter}}$
+${\textsf{\color{#dad3cc}who}}$
+${\textsf{\color{#c5b9ba}it}}$
+${\textsf{\color{#baadad}is,}}$
+${\textsf{\color{#a99899}I}}$
+${\textsf{\color{#9b8788}won't}}$
+${\textsf{\color{#897273}let}}$
+${\textsf{\color{#7d6464}them}}$
+${\textsf{\color{#6e515e}catch}}$
+${\textsf{\color{#5e3f5e}up}}$
+${\textsf{\color{#512f5e}to}}$
+${\textsf{\color{#421d5e}me,}}$
+${\textsf{\color{#34145e}let}}$
+${\textsf{\color{#2c115e}alone}}$
+${\textsf{\color{#1e044d}surpass}}$
+${\textsf{\color{#10002f}me. „}}$</h3>
 
-<h3 align="center">BTW IF YOU WANT TO TAKE INSPO OF MY SKINS LITERALLY JUST ASK AND CREDIT ME LOL</h3>
-<h3 align="center">YOU KNOW WHO ARE YOU.</h3>
- 
- <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=313mn7y63j5njykgucmpsq3zwazm&cover_image=false&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=a87fad&bar_color_cover=true">
+
+<p align="center">
+  <a href="https://bonelace.atabook.org/">
+    <img src="https://media.discordapp.net/attachments/1408787343682310165/1531670125311168512/IMG_20260728_162912.png?ex=6a6a0e76&is=6a68bcf6&hm=8999c122948f19b1fb6c5ecfa0234a8bb73e43a8248ee73173aaf679f5c64478&=&format=webp&quality=lossless" alt="atabook" width="250">
   </a>
+
+  <a href="https://rentry.co/bkatsukii">
+    <img src="https://media.discordapp.net/attachments/1408787343682310165/1531670125697171558/IMG_20260728_162927.png?ex=6a6a0e77&is=6a68bcf7&hm=106cb5eac9f29abf91400d1e35fcf835d392a225897cee97485ade560f289ae8&=&format=webp&quality=lossless" alt="rentry" width="250">
+  </a>
+
+  <a href="https://dynamiite.straw.page/">
+    <img src="https://media.discordapp.net/attachments/1408787343682310165/1531670124812042383/IMG_20260728_162857.png?ex=6a6a0e76&is=6a68bcf6&hm=5aea295c92cd777bbd315a843e0883356d25a8db371a67a4bcadcb86797ff674&=&format=webp&quality=lossless" alt="strawpage" width="250">
+  </a>
+</p>
+
