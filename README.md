@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1408787343682310165/1531661470524506345/Untitled334_20260728150617.png?ex=6a773567&is=6a75e3e7&hm=1d2b1944cba03d82e6409d4fa7165f79b7f33c54a95e40fc7278d831d6da98ad&=&format=webp&quality=lossless&width=780&height=353" alt="bonelace's custom image"/>
+  <img src="https://media.discordapp.net/attachments/1408787343682310165/1531661470524506345/Untitled334_20260728150617.png?ex=6a773567&is=6a75e3e7&hm=1d2b1944cba03d82e6409d4fa7165f79b7f33c54a95e40fc7278d831d6da98ad&=&format=webp&quality=lossless&width=780&height=535" alt="bonelace's custom image"/>
 </p>
 
 <h3 align="center">${\textsf{\color{#ffe8cc}“ It}}$
