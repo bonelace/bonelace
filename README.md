@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1408787343682310165/1531661470524506345/Untitled334_20260728150617.png?ex=6a773567&is=6a75e3e7&hm=1d2b1944cba03d82e6409d4fa7165f79b7f33c54a95e40fc7278d831d6da98ad&=&format=webp&quality=lossless&width=780&height=535" alt="bonelace's custom image"/>
+  <img src="https://media.discordapp.net/attachments/1408787343682310165/1531661470524506345/Untitled334_20260728150617.png?ex=6a81c167&is=6a806fe7&hm=4ce8f24534eea79630e233ac473bda13d8ab89fca839a9cf0702115620d9d42f&=&format=webp&quality=lossless&width=780&height=535" alt="bonelace's custom image"/>
 </p>
 
 <h3 align="center">${\textsf{\color{#ffe8cc}“ It}}$
@@ -24,18 +24,18 @@ ${\textsf{\color{#10002f}me. „}}$</h3>
 
 <p align="center">
   <a href="https://bonelace.atabook.org/">
-    <img src="https://media.discordapp.net/attachments/1408787343682310165/1531670125311168512/IMG_20260728_162912.png?ex=6a773d76&is=6a75ebf6&hm=3d76abe1080e996a482628c29d69649ca540ecfe191ba392eda35a957fd61f6c&=&format=webp&quality=lossless" alt="atabook" width="250">
+    <img src="https://media.discordapp.net/attachments/1408787343682310165/1531670125311168512/IMG_20260728_162912.png?ex=6a81c976&is=6a8077f6&hm=8898ad0b5293102dc78737fa9e744eeca708beecd63d78cbf8d4a6229fc5f983&=&format=webp&quality=lossless" alt="atabook" width="250">
   </a>
 
   <a href="https://rentry.co/bkatsukii">
-    <img src="https://media.discordapp.net/attachments/1408787343682310165/1531670125697171558/IMG_20260728_162927.png?ex=6a773d77&is=6a75ebf7&hm=21d8e3e27ab8d8db2492d28af005f0e08639da8c4e3d2fa8caaba1c1f17a069d&=&format=webp&quality=lossless" alt="rentry" width="250">
+    <img src="https://media.discordapp.net/attachments/1408787343682310165/1531670125697171558/IMG_20260728_162927.png?ex=6a81c977&is=6a8077f7&hm=49b6f465de203100471a612d88bc7a2d3e349828da473af1d837bdd5d2a7225c&=&format=webp&quality=lossless" alt="rentry" width="250">
   </a>
 
   <a href="https://dynamiite.straw.page/">
-    <img src="https://media.discordapp.net/attachments/1408787343682310165/1531670124812042383/IMG_20260728_162857.png?ex=6a773d76&is=6a75ebf6&hm=fb9cdd273239464efcf8f477e78aa27d7c7626827c042c6aab87f010547ad285&=&format=webp&quality=lossless" alt="strawpage" width="250">
+    <img src="https://media.discordapp.net/attachments/1408787343682310165/1531670124812042383/IMG_20260728_162857.png?ex=6a81c976&is=6a8077f6&hm=a6c5df4f3086a2a121fa0b2ad20ac79c5aaf6a543f160075a9d4a956254807da&=&format=webp&quality=lossless" alt="strawpage" width="250">
   </a>
 </p>
 
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1408787343682310165/1531661492506722495/Untitled340_20260728155520.png?ex=6a77356c&is=6a75e3ec&hm=991dfd86c11b04505dfda53793293322cf6824369f2b7f097ea3b3959549d40a&=&format=webp&quality=lossless" alt="bonelace's custom image"/>
+  <img src="https://media.discordapp.net/attachments/1408787343682310165/1531661492506722495/Untitled340_20260728155520.png?ex=6a81c16c&is=6a806fec&hm=d232cafe4048535f1c0d53f3999c68040fa83298bb8db158509f3d7bc7b9801e&=&format=webp&quality=lossless&width=512&height=307" alt="bonelace's custom image"/>
 </p>
